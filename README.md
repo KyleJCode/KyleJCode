@@ -2,7 +2,6 @@
 - 👀 I’m interested in all things CpE!!
 - 💞️ I’m looking to collaborate on any cool projects!
 - 📫 How to reach me jeterk@ufl.edu
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Maps/Dictionaries are the best containers... 
 
 <!---
